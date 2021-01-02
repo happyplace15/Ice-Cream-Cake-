@@ -1,1 +1,1 @@
-This is a Ice Cream Cake recipe 
+This is an Ice Cream Cake recipe 
